@@ -39,13 +39,13 @@ Bachelor of Science in Ecology, Evolution, and Biodiversity
 
 ## Work Experience																			
 
-** IT Technical Intern** 
+**IT Technical Intern** 
 *SAS Institute, Cary NC | 2015-2017*
 
-** Technician Assistant**
+**Technician Assistant**
 *Duke Lemur Center, Durham NC | 2018*
 
-** Veterinary Assistant**
+**Veterinary Assistant**
 *Tyson Animal Hospital, Durham NC | 2018 – 2020*
 
 **Field Station Intern**
